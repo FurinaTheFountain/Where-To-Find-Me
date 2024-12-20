@@ -13,7 +13,7 @@ i really dont leave this place that much, but i do sometimes leave it rarely
 
 
 ## bush
-i sit here next to this bush up above hoyo area alot(update: someone keeps stealing it and cover me)
+i sit here next to this bush up above hoyo area alot
 
 ![image](https://github.com/user-attachments/assets/d5eb8796-9be7-4f50-8e6a-1d92963378fd)
 
