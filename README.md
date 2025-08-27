@@ -44,8 +44,6 @@ also one of my old spots
 
 
 the place i mostly sit at is the bush, if its taken il sit at other places
-sometimes all my fav spots might be taken so i just have to find a way to sit somewhere
-
-edit: im starting to also sit at the crk/crob area!
+sometimes all my fav spots might be taken so i just have to find a way to sit somewhere else
 
 
