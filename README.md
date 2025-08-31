@@ -44,6 +44,11 @@ also one of my old spots
 
 
 the place i mostly sit at is the bush, if its taken il sit at other places
-sometimes all my fav spots might be taken so i just have to find a way to sit somewhere else
+sometimes all my fav spots might be taken so i just have to find a way to sit somewhere else, maybe just maybe i might not be in the whole hoyo area thing, but i know for a fact i never leave it, unless situations like idk.. wanted to explore? go to islands? even get dragged around to troll as a zombie?
+
+
+Other: i dont sit near others mostly because i uh..idk i get anxious around ppl man chill 💔
+tho i wont move if someone just..idk sits near me without any sort of uh.. speaking n stuff..
+this doesnt imply with friends btw (friends that i know/remember)
 
 
